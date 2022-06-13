@@ -1,17 +1,23 @@
-全新各种软件，收集了全网最火的看片软件，并且破解了，免费看，VIP功能多，收费便宜质量好
+2022年全新各种软件，收集了全网最火的看片直播软件，并且破解了，免费看，VIP功能多，收费便宜质量好，小说游戏视频音频图片等都有，资源多【资源往下翻，长期更新，收藏一下】
+针对于新来的朋友不会下载看片软件，因为有的手机有自带的手机管家会对看片软件误报病毒之类的，这是误报，实则是没有病毒的放心，看片就是找快乐，我推荐的软件资源也多
+如果你是用小米手机oppo等安装不了看教程 
+http://598.qyh.pw/NQjeb
+华为鸿蒙教程 http://598.qyh.pw/yxW5q
 
 
-【哔哩哔哩 bilili 搜云卿舞】
+【→关于打不开网站，提醒病。毒。色。情网站，那就是浏览器问题，换个浏览器就行了，因为这样不会被限制访问】
+安卓手机请安装 www.xbext.com 这个x浏览器，打开任何网站，包括国外都不会被访问限制
+苹果用自带的浏览器（safari浏览器）
 
+
+
+【哔哩哔哩 bilili 搜云卿舞 QQ群1054275298】
 
 【已更新】罗聊一对一 http://598.qyh.pw/Kr3oH 
 
 
 【一个链接一个软件 请进城人QQ群1054275298】
-
-安卓手机请安装 www.xbext.com 下载看偏不会被访问限制,苹果用自带的浏览器打开
-
-
+安卓手机请安装 www.xbext.com 下载看偏不会被访问限制
 【嘈毕必备↓】直播破解
 http://598.qyh.pw/hICdc
 
@@ -218,6 +224,7 @@ http://share-mafdbn68.i.plasticlink.cn/promoter/zcs.php?pcid=1614348547746902929
 多姿直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开 
 官网805t.tv  邀请码ZD7YW
 
+
 直播四
 https://13nx.com/?channelCode=6808704
 
@@ -261,3 +268,37 @@ https://www.mituyuedu.com/download?ic=XJC7DH&cn=official
 
 寻御姐，品萝莉，约少妇，换淫妻，全在萝莉社成人社区，小孩子才做选择，成年人只用萝莉社，请复制链接在浏览器中打开
  https://luolishe.me?_share=D881O
+
+
+【已更新】罗聊一对一 http://598.qyh.pw/Kr3oH 
+【一个链接一个软件 请进城人QQ群1054275298】
+安卓手机请安装 www.xbext.com 下载看偏不会被访问限制
+【嘈毕必备↓】直播破解
+http://598.qyh.pw/hICdc
+泡芙短视频 http://598.qyh.pw/f3WxM
+麻豆色 http://598.qyh.pw/xSlVG
+刺激你懂的 http://598.qyh.pw/QfR9O
+罗聊视频 http://598.qyh.pw/Ck3mc
+黄瓜视频 http://cuke02.app 邀请码WYVM6H
+美团叫鸡！你懂的 http://598.qyh.pw/rQer5
+全新抖音草榴  http://598.qyh.pw/JvQfG
+悠女 http://598.qyh.pw/QsMtb
+
+罗聊直播 http://598.qyh.pw/KhA1v
+在线骆聊啊 http://598.qyh.pw/JiWKh
+麻豆传媒 http://598.qyh.pw/4JidH
+看片 http://598.qyh.pw/gOYGw
+pear雪梨 
+http://598.qyh.pw/Gqpmp 邀请码h9w8
+陪玩聊 http://598.qyh.pw/V60fU
+赚零花钱靠谱 http://598.qyh.pw/lCosw
+葫芦娃激情
+http://598.qyh.pw/N5zxs 邀请码0tsq60
+精东 http://598.qyh.pw/lGGSw
+汤头条 http://598.qyh.pw/9s6Kz 邀请码3rE
+抖音 https://fans.oeeod.com/aff-aC9t
+御姐 http://598.qyh.pw/OTzYP
+番茄 ta20.app 邀请码K1OPNU
+约泡 http://598.qyh.pw/r79Ox
+软件合集 http://598.qyh.pw/fHxcU
+黑蛋
