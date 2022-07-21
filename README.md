@@ -16,187 +16,280 @@ http://598.qyh.pw/NQjeb
 
 【哔哩哔哩 bilili 搜云卿舞 QQ群1054275298】
 
-
 【已更新】罗聊一对一 
-https://suo.yt/xSq6DsC
+https://suo.yt/mkPqfAE
 
 【一个链接一个软件 城人QQ群1054275298】 安卓手机请安装 www.xbext.com 不会被访问限制 
+
 【嘈毕必备↓】直播破解
-https://suo.yt/jceHwHT
+https://suo.yt/QguuXtG
 
 泡芙短视频 https://suo.yt/jryrv9X
 
-麻豆色 https://suo.yt/Y2MNNaM
+麻豆色 https://suo.yt/d7MCyMB
 
-p站你懂的 https://suo.yt/DuodPcx
+p站你懂的 https://suo.yt/o6mFKIj
 
-扣扣视频 https://suo.yt/Y45fYyW
+扣扣视频 https://suo.yt/fCjPGf7
 
 黄瓜 http://cuke03.app 邀请码WYVM6H 
 
-吐呼罗聊 https://suo.yt/mQSvC2s
+吐呼罗聊 https://suo.yt/qMjdEl5
 
-美团叫鸡！你懂的 https://suo.yt/kQ9gsEa 
+美团叫鸡！你懂的 https://suo.yt/n1DO0xO
 
-抖音草榴 https://suo.yt/sQDD9f4
+抖音草榴 https://suo.yt/iNOFiWv
 
-悠女 https://suo.yt/vsN1yws
+悠女 https://suo.yt/z5mpBiO
 
-哆趣骆聊 https://suo.yt/kAqtSuO
+哆趣骆聊 https://suo.yt/FUu0UD3
 
-麻豆传媒 https://suo.yt/9AvxBid
+麻豆传媒 https://suo.yt/fYhzw6y
 
-快手看片 https://suo.yt/x3PjKtQ
+番茄社区 https://ta20.app 邀请码HNZR9Y
 
- pear雪梨 https://suo.yt/8bLJ236 邀请码h9w8 
+ pear雪梨 https://suo.yt/xbidqhL 
+邀请码h9w8 
 
-陪玩聊 https://suo.yt/eixomBA
+玩恰爽 https://suo.yt/BkXmrDy
 
-赚零花钱 https://suo.yt/6HG1REx
+赚零花钱 https://suo.yt/GfjbQR3
 
 葫芦娃 http://pp2.ypnlswr.work
 邀请码0tsq60 
 
-精东 https://suo.yt/0W51SyC
+精东 https://suo.yt/lhySMSH
 
-抖音 https://suo.yt/0moqiBh
+抖音 https://suo.yt/ZbXfnfX
 
-御姐 https://suo.yt/3ZkIVQ7
+御姐 https://suo.yt/1aBiVar
 
-老哥稳约泡 https://suo.yt/KZBjC8e
+老哥稳约泡 https://suo.yt/8I3lDBi
 
-做不了王思聪,我还做不了王老王?嫖尽天下女,阅尽天下逼.超全资源,超真体验,超高性比价!资源覆盖全国+城市,楼凤洗浴会所样样都有https://didi.aff005.co/aff-adsK
-
-黄瓜滴滴
-https://yph5.hgdd6.app?promo_code=R5J0U
-
-全网最性感可人的网红美女大咖在这里大尺度直播等你来撩，下载地址可复制到游览器打开
-https://fx.ggxfzptapp.com/?parent_icode=41937305
-
-足迹
-http://share-c7fqo2tp.i.oldchild.cn/promoter/zcs.php?pcid=1614348547746902929&app=ellite&r=476&ic=12701066
-
-//成人韩漫、动漫//二次元一切尤物，91应有尽有！复制链接在浏览器中打开免费下载
- https://91voh3fh.com?sh=345XE
-
- 五月天
-https://wyta.cc?code=XCX9JP
-
-哔哩哔哩
-https://preudz.com/?pc=HP9E2C2B
-
-怡红出品，打造品质生活 首家国风成人APP 高颜值 高画质 网罗全网高端资源 独家原创高清资源顶级视听娱乐与约炮一站式服务、女神触手可及 下载成人APP 认准怡红院 请复制链接在浏览器打开
-
-https://yhy.douxiaodian666.com?code=Wqn
+软件合集 https://suo.yt/6u0hjbm
 
 
-先有菠萝后有天，看看黄片赛神仙！美女直播大秀，国语成人视频，你想象不到的大尺度成人世界，都在【菠萝视频
-https://bo.aff005.co/af/dt22
+【趣闲赚】拿着手机做赏金任务，1元提现秒到账，在家躺着也赚钱
+ https://b.jrpub.cn/7762738
+
+网红不雅被流出？ 网红资源无处寻？经典AV哪里找？一切尽在91请复制链接在浏览器中打开
+ https://mv.aff005.cool/aff-aEr45
 
 
-专为二次元定制的顶级污漫app，B站高级原画师团队入驻，百万稿酬拒绝烂片，千位up主搜集顶级漫画集聚一堂！代理日赚十万秒到账！请复制后方链接，在UC、谷歌或系统自带浏览器打开，下载
-https://flj.neweggmeta.com/?code=cQTG
+网红不雅被流出？精品资源无处寻？一切尽在妻友，请复制链接在浏览器中打开
+https://7u.aff005.cool//aff-p6X
 
-拿着手机做赏金任务，1元提现秒到账，在家躺着也赚钱
-https://b.jrpub.cn/7762738
+想看明星网红不雅视频吗？想看最新国产原创成人视频吗？想看人妖、呦呦、猎奇、偷窥、三级等视频吗？全球首家成人自媒体平台，一切全在【汤头条】填我邀请码【3rE】
+下载 https://ttt.aff005.app/af/3rE
 
-网红不雅被流出？ 网红资源无处寻？经典AV哪里找？一切尽在91AV(百万资源在线看，分享赚钱月入万)，请复制链接在浏览器中打开
- https://mv.aff005.co/aff-aEr45
-
-网红不雅被流出？精品资源无处寻？一切尽在妻请复制链接在浏览器中
-https://7u.aff005.co//aff-p6X
-
-想看明星网红不雅视频吗？想看最新国产原创成人视频吗？想看人妖、呦呦、猎奇、偷窥、三级等视频吗？全球首家成人自媒体平台，一切全在【汤头条】填我邀请码【3rE】请复制链接在浏览器中打开
-https://ttt.aff005.app/af/3rE
-
-想看SM、少女、偷窥、泄漏门、人妖、呦呦、恋物癖、人兽、猎奇等视频吗？快来【50度灰】，重口视频好看得一批，百万重口资源等你挖掘！填我邀请码【caP5】，请复制链接在浏览器中打
-https://50.aff005.biz/af/caP5
 
 赚钱
 http://ztxsfxi2204et.tuizhuanjia.com/ShakyRegister?shareCode=9E3B1F&time=1657206276
 
-罗聊
-https://tbyfw.37gsro6.k1a4.dzj8.misi.pw/h5/#/invite?invite_code=1063462
 
-番茄
-https://share.cuckxm.work/?isFqApp=1
-邀请码HNZR9Y
+茶馆
+https://cg.aff005.co/?code=byZw&c=tangbr
 
-春水
-cslsp.cc?code=HE7LM1
-
-瑶池
+看片
 https://ycbb.cc?code=FS9JBJ
 
-黑料社
+看片啊啊
+cslsp.cc?code=HE7LM1
 
+黑料不打烊
 hlss.cc/?pc=2BCS3R
 
-海量无码大片免费观看。复制链接到浏览器内打开
-https://tm11ji.com/share?code=SHNCX 我的邀请码：SHNCX
 
-ccav看片
+先有菠萝后有天，看看黄片赛神仙！美女直播大秀，国语成人视频，你想象不到的大尺度成人世界，都在【菠萝视频
+https://bo.aff005.cool/af/dt22
+
+快手约泡
+http://ksyp01.com/?pc=DY3EAJ9H
+
+
+做不了王思聪,我还做不了王老王?嫖尽天下女,阅尽天下逼.超全资源,超真体验,超高性比价!资源覆盖全国+城市,楼凤洗浴会所样样都有https://didi.aff005.cool/aff-adsK
+
+javdb看片
+https://jav003.app/?source=su3jqa
+
+
+专为二次元定制的顶级污漫app，B站高级原画师团队入驻，百万稿酬拒绝烂片
+https://flj.51caikao.com/?code=BgV
+
+//成人韩漫、动漫//二次元一切尤物，91应有尽有！复制链接在浏览器中打开免费下载
+ https://91nofvzj.com?sh=345XE 
+
+
+
+1、深夜看片神器梅花视频App，永久免费在线观看，支持苹果和安卓双端！ 2、超快加载，海量正版高清片源，无需翻墙，后台缓存让您随时离线观看 http://luod6.185xyz.cn/index.php?invite=I5D06S 
+
+看片爽
+https://wyta.cc?code=XCX9JP
+
+
+
+全网最火视频软件，快来下载！『全站免费中』 (请用外部浏览器开启)
+邀请码ug19918294
+下载  https://lu1.site
+
+
+哔哩哔哩
+https://preudz.com/?pc=XPJ6FL3G
+
+
+怡红出品，打造品质生活 首家国风成人APP 高颜值 高画质 网罗全网高端资源 独家原创高清资源顶级视听娱乐与约炮一站式服务、女神触手可及 下载成人APP 认准怡红院 请复制链接在浏览器
+https://yhy.51caikao.com?code=Wqn
+
+约泡
+https://yph5.hgdd6.app?promo_code=R5J0U
+
+
+全网最性感可人的网红美女大咖在这里大尺度直播等你来撩，下载地址可复制到游览器打开
+https://fx.ggxfzptapp.com/?parent_icode=41937305
+
+
+足迹
+http://share-m3owcyff.i.oldchild.cn/promoter/zcs.php?pcid=1614348547746902929&app=ellite&r=625&ic=12701066
+
+海量圈内福利 图片、小说、漫画、视频 供你欣赏 https://51mm.co/#/share/download47b739853100?t=606741
+
+
+花季
+https://sXBdwjEZ.hj5cmr.cc/?i=FQLLY8
+
+海量无码大片免费观看。复制链接到浏览器内打开
+
+https://tm11ji.com/share?code=SHNCX
+
+我的邀请码SHNCX
+
+
+aacv看片
 https://ccheiliao1.com?code=R4IDF&channel=zwavox06
 
-天美
+天美传媒
 https://t.tmm69.com?_s=Y2LJ
 
-约啪、裸聊、看片，在妹团，东半球最大色狼聚集地，妹团在手，约啪我有！请复制链接在浏览器中打开 
-https://mt13.site?_s=MGN7E 
 
+约啪、裸聊、看片，在妹团，东半球最大色狼聚集地，妹团在手，约啪我有！邀请好友，白嫖VIP，可无限叠加！请复制链接在浏览器中打开
+ https://mt13.site?_s=MGN7E 
 
-撸先生，地表最强撸管神器，優质片源日日更新, 请复制链接用手机自带浏览器打开，QQ或者微信等第三方软件内置浏览器无法打开网页:(最强撸管神器，在线看片APP),请复制链接,在浏览器中打开
-https://sir.aff005.app/c-1/a-ja6W/
+撸先生，地表最强撸管神器，優质片源日日更新
+https://sir.aff005.cool/c-1/a-ja6W/
 
 91约炮
 https://yfwxsx.com/?pc=K2DD7V
 
-
-91旗下出品,专业团队打造最强最快最稳定vpn,请复制链接在浏览器中打开
+91VPN啊
 https://pp.91jsq.me/c-1/a-aqP9y
 
-制片厂
-https://zpc.aff005.co/aff-Sg8
+91制片厂
+https://zpc.aff005.cool/aff-Sg8
 
 日本av有码，无码；国产自拍、偷拍；会所双飞、3p、群交聚会；网红系列；校园教室系列尽在91影视。请复制链接在浏览器中打开
 https://91ys3.me?_s=B8VF 
 
 //成人韩漫、成人游戏、动漫//二次元一切尤物，半次元应有尽有！复制链接在浏览器中打开免费下载
- https://bcy0kgc9.com?_s=N7N8 
+ https://bcy3r332.com?_s=N7N8 
 
 咪咪爱
-http://py5ry7xn.shop?p=9MYMWO
-
+https://mazbkc4fhl.space?p=9MYMWO
 
 什么！快手悄悄出了成人版？已有百万老铁在上传国语性爱视频，还有美女主播答应你的“无理”要求，白嫖也能赚钞票，一切都在成人快手
-https://ks.aff005.co/af/aba6k 
+https://ks.aff005.cool/af/aba6k 
 
 撸管看片网站无处寻？何不下载杜蕾丝视频APP，百万资源在线看！部分浏览器打不开，请更换浏览器
 http://du64.me/share.html?channel=app&code=z628at
 
-蜜桃
+蜜桃视频
 https://onewrpn2.shop?p=BECTYC
 
-知音
-http://foom76pi.shop?p=5EGDK9
+知音视频
+https://foom76pi.shop?p=5EGDK9
 
-蜜桃
+蜜桃影像
 https://mtyx.me/?code=EYARGC
 
-小优
-https://xycubnxf.com?_s=MNVA6LJT
+91视频啊
+https://app.ewvr.xyz/i-363YUG 
+
+小优短视频
+https://xy376v5j.com?_s=MNVA6LJT
 
 日本av有码，无码；国产自拍、偷拍；会所双飞、3p、群交聚会；网红系列；校园教室系列尽在91TV。请复制链接在浏览器中打开
 https://91tv018.com?_s=0I76 
 
 含羞草
-https://www.carkingks.com/?id=62425156
+https://www.carkingks.com/?id=128187549
 
-基圈后花园，看片上小蓝，最全G片，超帅猛攻，尽在【小蓝视频
-https://gv.aff005.co/af/d7GF 
+基圈后花园，看片上小蓝，最全G片，超帅猛攻，尽在小蓝视频
+https://gv.aff005.cool/af/d7GF 
 
-9uu看片
-https://7228331bf8a9693c.pw/user/register?invite_code=NPIPCH
+丝密圈
+https://smq-h5.smqshare.com/privateCircle/pshareIndex?shareId=a5685eb15b0048faaf435896e0686b84&shareQd=7997&source=web
+
+茄子社区
+http://share-8qko7f8p.i.oldchild.cn/promoter/zcs.php?pcid=1614348547746902929&app=yizhibo&r=809&ic=12701066
+
+嗨，哥哥，想看少女的自拍视频吗？想看少女的私密偷拍吗？想看少女的原味内裤吗？想和少女1V1私密裸聊吗？快来【女儿国】，百万少女舒服得一批，真正懂你的只有女儿国！
+填我邀请码dHQ2
+下载https://m.imm04.com/af/dHQ2
+
+爱浪直播
+99988.app/?channelCode=3407261
+
+多姿直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开 
+下载80511t.tv  邀请码ZD7YW
+
+七欲直播
+https://6466g.tv/?code=U27859023
+
+玫瑰
+https://13nx.com/?channelCode=6808704
+
+ixx直播
+https://ixx33.tv/?parent_icode=246072138
+
+将爱直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开
+直播 9868d.tv  邀请码 368J4
+
+第一直播
+https://1003.live/?channelCode=1103351
+
+彩色直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开
+下载 lhvip998.vip  邀请码6VE6F
+
+夏花直播
+http://3.6669f.tv/?code=U26251786
+
+夜姑娘
+https://rhg.skax.gn06.cc?code=U26251877
+
+k9视频
+https://k9sm28.com?_s=95BMFM
+
+虐戀亞文化私密社交平台、最新sm玩法、幹貨、新鮮事，更有抖m、抖s、dom女王以及國內超美女會員，滿足你的主nu欲望盡在字母圈
+http://aff.izmq.me/aff-apJz
+
+寻御姐，品萝莉，约少妇，换淫妻，全在杏吧成人社区，小孩子才做选择，成年人只用杏吧，请复制链接在浏览器中打开
+ https://1024xb.me?_s=T8BH8J3P 
+
+糖心
+https://txlui9zw.com?_s=M71JT5
+
+有兔阅读
+https://www.mituyuedu.com/download?ic=XJC7DH&cn=official
+
+
+寻御姐，品萝莉，约少妇，换淫妻，全在萝莉社成人社区，小孩子才做选择，成年人只用萝莉社，请复制链接在浏览器中打开
+ https://luolishe.me?_share=D881O 
+
+9uu视频
+https://39dc16f41ee29ba8.pw/user/register?invite_code=NPIPCH
+
+玉米视频
+https://Q91NYK.yy4.tv/?inviteCode=Q91NYK   邀请码 Q91NYK
+
 
 注意！你要的全方位极品美少女都在这了！亚洲最狂的射交平台！海量美女真人大秀．火辣视频每日更新，宅男深夜利器，看片约妹都在欧那尼！点进连结有更多精彩福利
  https://onani.one/?from=10404036 
@@ -205,109 +298,67 @@ https://7228331bf8a9693c.pw/user/register?invite_code=NPIPCH
 滴滴约 -约尽天下妹儿，嫖遍世上逼；同城网上海选超值体验信息一扫而尽，纯情学生妹、柔情少妇、火暴佳丽、火辣超模、城市丽人满足您的需要超出您的想象爽到尖叫，超高性比价，资源覆盖全国+全球,楼凤洗浴会所样样都有！请复制链接到浏览器
 https://ddykkk.shop/index.html?share_code=CERSWYZ
 
-//成人韩漫、成人游戏、动漫//二次元一切尤物，涩里番应有尽有！复制链接在浏览器中打开免费下载！ https://slf8huft.com?_s=C9FQKE 
+寻御姐，品萝莉，约少妇，换淫妻，全在yy视频，小孩子才做选择，成年人只用yy，请复制链接在浏览器中打
+https://yyav.tv?_s=AG12UDE
+
+
+網紅不雅被流出？ 網紅資源無處尋？怀旧經典AV哪裏找？最新片源百萬資源在線看，請複製鏈接在瀏覽器中打
+https://m84oy.shop/?code=5B341AFC1D94F6
+
+//成人韩漫、成人游戏、动漫//二次元一切尤物，涩里番应有尽有！复制链接在浏览器中打开免费下载
+ https://slfemu92.com?_s=C9FQKE 
 
 小黄片
-https://bzwre8sp.space?p=SF97KN
+https://yz0zlefk.shop?p=SF97KN
 
-丝足
-https://smq-h5.smqshare.com/privateCircle/pshareIndex?shareId=a5685eb15b0048faaf435896e0686b84&shareQd=7997&source=web
-
-茄子社区直播
-http://share-4ixo2ky1.i.oldchild.cn/promoter/zcs.php?pcid=1614348547746902929&app=yizhibo&r=238&ic=12701066
-
-嗨，哥哥，想看少女的自拍视频吗？想看少女的私密偷拍吗？想看少女的原味内裤吗？想和少女1V1私密裸聊吗？快来【女儿国】，百万少女舒服得一批，真正懂你的只有女儿国！填我邀请码【dHQ2】，请复制链接在浏览器中打开
-https://m.imm04.com/af/dHQ2
-
-爱浪直播
-99988.app/?channelCode=3407261
-
-多姿直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开 
-下载805d.tv  邀请码ZD7YW
-
-七欲直播
-https://6466g.tv/?code=U27859023
-
-玫瑰直播
-https://13nx.com/?channelCode=6808704
-
-玖梦直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开 
-22122b.com  邀请码：JD234
-
-将爱直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开
-下载 9868d.tv  邀请码368J4
-
-第一直播
-https://1003.live/?channelCode=1103351
-
-彩色直播，随时随地看片玩彩。<br/> 在这里有超多性感在线小姐姐，陪你嗨翻天；更有超多游戏，助你日赚斗金。你想看的，想玩的，我这全都有。赶紧下载，请复制链接到浏览器打开 
-下载 lhvip998.vip  邀请码6VE6F
-
-夏花直播
-http://j2-0.tv/?code=U26251786
-
-野姑娘https://rhg.skax.gn06.cc?code=U26251877
-
-k9看片
-https://k9sm28.com?_s=95BMFM
-
-
-寻御姐，品萝莉，约少妇，换淫妻，全在杏吧成人社区，小孩子才做选择，成年人只用杏吧，请复制链接在浏览器中打开
- https://1024xb.me?_s=T8BH8J3P 
-
-糖心
-https://tx6g6sfz.com?_s=M71JT5
-
-看小说
-https://www.mituyuedu.com/download?ic=XJC7DH&cn=official
-
-寻御姐，品萝莉，约少妇，换淫妻，全在萝莉社成人社区，小孩子才做选择，成年人只用萝莉社，请复制链接在浏览器中打开
- https://luolishe.me?_share=D881O
 
 【已更新】罗聊一对一 
-https://suo.yt/xSq6DsC
+https://suo.yt/mkPqfAE
 
 【一个链接一个软件 城人QQ群1054275298】 安卓手机请安装 www.xbext.com 不会被访问限制 
+
 【嘈毕必备↓】直播破解
-https://suo.yt/jceHwHT
+https://suo.yt/QguuXtG
 
 泡芙短视频 https://suo.yt/jryrv9X
 
-麻豆色 https://suo.yt/Y2MNNaM
+麻豆色 https://suo.yt/d7MCyMB
 
-p站你懂的 https://suo.yt/DuodPcx
+p站你懂的 https://suo.yt/o6mFKIj
 
-扣扣视频 https://suo.yt/Y45fYyW
+扣扣视频 https://suo.yt/fCjPGf7
 
 黄瓜 http://cuke03.app 邀请码WYVM6H 
 
-吐呼罗聊 https://suo.yt/mQSvC2s
+吐呼罗聊 https://suo.yt/qMjdEl5
 
-美团叫鸡！你懂的 https://suo.yt/kQ9gsEa 
+美团叫鸡！你懂的 https://suo.yt/n1DO0xO
 
-抖音草榴 https://suo.yt/sQDD9f4
+抖音草榴 https://suo.yt/iNOFiWv
 
-悠女 https://suo.yt/vsN1yws
+悠女 https://suo.yt/z5mpBiO
 
-哆趣骆聊 https://suo.yt/kAqtSuO
+哆趣骆聊 https://suo.yt/FUu0UD3
 
-麻豆传媒 https://suo.yt/9AvxBid
+麻豆传媒 https://suo.yt/fYhzw6y
 
-快手看片 https://suo.yt/x3PjKtQ
+番茄社区 https://ta20.app 邀请码HNZR9Y
 
- pear雪梨 https://suo.yt/8bLJ236 邀请码h9w8 
+ pear雪梨 https://suo.yt/xbidqhL 
+邀请码h9w8 
 
-陪玩聊 https://suo.yt/eixomBA
+玩恰爽 https://suo.yt/BkXmrDy
 
-赚零花钱 https://suo.yt/6HG1REx
+赚零花钱 https://suo.yt/GfjbQR3
 
 葫芦娃 http://pp2.ypnlswr.work
 邀请码0tsq60 
 
-精东 https://suo.yt/0W51SyC
+精东 https://suo.yt/lhySMSH
 
-抖音 https://suo.yt/0moqiBh
+抖音 https://suo.yt/ZbXfnfX
 
-御姐 https://suo.yt/3ZkIVQ7
+御姐 https://suo.yt/1aBiVar
 
-老哥稳约泡 https://suo.yt/KZBjC8e
+老哥稳约泡 https://suo.yt/8I3lDBi
+
